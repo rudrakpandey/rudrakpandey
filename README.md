@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @rudrakpandey
-- 👀 I’m interested in learnig new things and exploring the world
-- 🌱 I’m currently learning in chandigarh engineering college
+- 👀 I’m interested in learnimg new things and exploring the world
+- 🌱 I’m currently pursuing btech from chandigarh engineering college
